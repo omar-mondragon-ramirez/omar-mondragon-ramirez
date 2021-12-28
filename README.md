@@ -1,0 +1,2 @@
+- Name:     Omar Mondragon-Ramirez
+- Contact:  omarmondragonramirez@gmail.com | https://www.linkedin.com/in/omarmondragonramirez/
